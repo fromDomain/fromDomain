@@ -1,6 +1,0 @@
-# Sold
-
-
-
-wonderdrone.com
-
